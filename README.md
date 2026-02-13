@@ -1,1 +1,0 @@
-# quantum-knowldege-guard-2026
